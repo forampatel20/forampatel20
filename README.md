@@ -1,9 +1,4 @@
 - 👋 Hi, I’m @forampatel20
-- 👀 I’m interested in Girls 
-- 🌱 I’m currently learning to pulls trans
-- 💞️ I’m looking to collaborate on Smoker's Land
-- 😄 Pronouns: 
-- ⚡ Fun fact: 
 
 <!---
 forampatel20/forampatel20 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

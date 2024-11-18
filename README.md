@@ -2,7 +2,6 @@
 - 👀 I’m interested in Girls 
 - 🌱 I’m currently learning to pulls trans
 - 💞️ I’m looking to collaborate on Smoker's Land
-- 📫 How to reach me @spamfor_youandme
 - 😄 Pronouns: 
 - ⚡ Fun fact: 
 
